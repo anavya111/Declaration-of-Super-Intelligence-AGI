@@ -1,0 +1,1 @@
+# Declaration-of-Super-Intelligence-AGI
